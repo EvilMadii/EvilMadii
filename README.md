@@ -1,4 +1,4 @@
-### Madi aka *** The Spawn Of Satan ***
+### Madi aka Le Spawn Of Satan
 --- 
 **`Full-Stack Software Engineer`**
 
